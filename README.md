@@ -8,8 +8,8 @@
 <p>https://www.tumblr.com/lsunncy<p/>
   <p>https://open.spotify.com/user/315h4vn7n3bmxc5z3xnvzrhiybte<p/>
   <p>https://en.pronouns.page/@sunncy<p/>
-  <p>lsunncy on discord<p/>
   <p>https://www.pinterest.com/lsunncy/<p/>
+    <p>lsunncy on discord<p/>
 </body>
   <p>c+h on pt ALWAYS and im usually offtab or sleeping so w2i (or i won't see it)<p/>
 </html>

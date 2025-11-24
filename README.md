@@ -1,15 +1,17 @@
 # sunncy
 <html>
-  <img src="https://i.pinimg.com/736x/a6/7f/8a/a67f8a74e221633414749d1781bb3724.jpg" alt="lukas back alnst">
-  <body>
-    sign atabook please
-<p>https://sunncy.atabook.org/<p/>
-<p>https://archiveofourown.org/users/sunncy/works<p/>
-<p>https://www.tumblr.com/lsunncy<p/>
-  <p>https://open.spotify.com/user/315h4vn7n3bmxc5z3xnvzrhiybte<p/>
-  <p>https://en.pronouns.page/@sunncy<p/>
-  <p>https://www.pinterest.com/lsunncy/<p/>
-    <p>lsunncy on discord<p/>
-</body>
-  <p>c+h on pt ALWAYS and im usually offtab or sleeping so w2i (or i won't see it)<p/>
-</html>
+i'm a big twenty one pilots fan....
+
+for ponytown: c+h almost ALWAYS even if it isn't in my name. if my name has "dni/dniuf" then no, but that's it.
+
+this isn't being decorated well because all my layout photos are downloaded and can't be used in html formatting.... aww
+
+i like talking to people sometimes except i don't really come online. please be my friend
+my tumblr has a better layout and more information please go check it out
+
+lsunncy on discord
+https://sunncy.atabook.org/ (sign please :3)
+https://en.pronouns.page/@sunncy (address me properly)
+https://www.pinterest.com/lsunncy/ (see everything i save!)
+https://www.instagram.com/lsunncy/ (yet i dont post)
+https://open.spotify.com/user/315h4vn7n3bmxc5z3xnvzrhiybte (see what i listen to!)

@@ -8,7 +8,10 @@ for ponytown: c+h almost ALWAYS even if it isn't in my name. if my name has "dni
 this isn't being decorated well because all my layout photos are downloaded and can't be used in html formatting.... aww
 
 i like talking to people sometimes except i don't really come online. please be my friend
+
 my tumblr has a better layout and more information please go check it out
+
+i get really dependent on other people sorry in advance if i int too much
 
 
 lsunncy on discord

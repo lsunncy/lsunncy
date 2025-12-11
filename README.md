@@ -5,6 +5,8 @@
 
 for ponytown: c+h almost ALWAYS even if it isn't in my name. if my name has "dni/dniuf" then no, but that's it.
 
+i am a yumeshipper (nonsharing for most) so uhhhh idk. just know that and dni if you don't like it cause it's my business not yours
+
 this isn't being decorated well because all my layout photos are downloaded and can't be used in html formatting.... aww
 
 i like talking to people sometimes except i don't really come online. please be my friend

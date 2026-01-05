@@ -15,6 +15,8 @@ my tumblr has a better layout and more information please go check it out
 
 i get really dependent on other people sorry in advance if i int too much
 
+i want to use nicknames for you but i will most commonly just say "dude" or "dawg" specialized nicknames take time
+
 
 lsunncy on discord
 
